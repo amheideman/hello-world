@@ -1,3 +1,4 @@
 # hello-world
-This is my intro to GitHub!
-My favorite animals are alpacas and my favorite color is blue. I am a Tar Heel living in TN. I have a great husband and super cute dog. 
+Ann Marie Heideman here!
+I am a market research professional in the automotive industry 
+Mom to Elise, Zoe, and Lasso (dog) and wife to Judd
